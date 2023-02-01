@@ -1,1 +1,1 @@
-Imhttps://modern-chair-65202.netlify.apphttps://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/https://modern-chair-65202.netlify.app/
+Live Demo-: https://modern-chair-65202.netlify.app/
